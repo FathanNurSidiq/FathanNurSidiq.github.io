@@ -1,1 +1,0 @@
-# fathannursidiq.github.io
